@@ -1,2 +1,2 @@
 # Joe-world
-Stay hungry, Stay foolish
+stay hungry  stay foolish
